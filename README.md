@@ -8,5 +8,5 @@
 *CSS
 *JAVASCRIPT
 
-## I ope you like it,And I have done everything that you are expectng of .Thanks for the opportunity.
+## I hope you like it,And I have done everything that you are expectng of .Thanks for the opportunity.
 
